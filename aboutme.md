@@ -6,6 +6,8 @@
   - 📫 How to reach me?
   
     📬 [My Email (not so active)](mailto://yldz.1229.72@gmail.com]
+    📸 [Instagram](https://www.instagram.com/ridvanyildiz7221/#)
+    ✈️ [Telegram](https://anins1der.t.me/)
     
 <!---
 anins1der/anins1der is a ✨ special ✨ repository because its `aboutme.md` (this file) appears on your GitHub profile.

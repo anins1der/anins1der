@@ -5,7 +5,7 @@
 ---
   - 📫 How to reach me?
   
-    📬 [My Email](mailto://yldz.1229.72@gmail.com]
+    📬 [My Email](yldz.1229.72@gmail.com]
 
     
     📸 [Instagram](https://www.instagram.com/ridvanyildiz7221/#)

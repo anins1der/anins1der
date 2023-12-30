@@ -5,8 +5,12 @@
 ---
   - 📫 How to reach me?
   
-    📬 [My Email (not so active)](mailto://yldz.1229.72@gmail.com]
+    📬 [My Email](mailto://yldz.1229.72@gmail.com]
+
+    
     📸 [Instagram](https://www.instagram.com/ridvanyildiz7221/#)
+
+
     ✈️ [Telegram](https://anins1der.t.me/)
     
 <!---
